@@ -13,4 +13,4 @@ It’s a strong reminder that in today’s **AI-driven era**, software quality s
 
 ## Proof Reading\nArticle checked for typos
 
-
+I liked reading this article. The stunning style of writing bamboozled by **neanderthal** brain. --Review by Naser Mansour.
